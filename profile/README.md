@@ -4,7 +4,7 @@ Welcome to the Calm Cargo development organization, where we come together to in
 
 # About Calm Cargo
 
-Calm Cargo was founded on June, 11th 2024 by Falke & Wenzy. It is the only address of quality in a helpful, friendly and fun environment. Our drivers have the opportunity to continuously develop within our company and when they meet players on the road in Europe, they become friendly and ride together on the next trip.We are people who have made a name for ourselves as sincere friends in the TruckersMP community and we are happy about that. We have opened our company and we are looking forward to welcoming you to our company as soon as possible.
+Calm Cargo was founded on June 11th, 2024, by Wenzy & Falke, and as of November 2024, it is proudly co-led by four founders: Wenzy, Falke, KeremKhan, and Espera. It is the only address of quality in a helpful, friendly and fun environment. Our drivers have the opportunity to continuously develop within our company and when they meet players on the road in Europe, they become friendly and ride together on the next trip.We are people who have made a name for ourselves as sincere friends in the TruckersMP community and we are happy about that. We have opened our company and we are looking forward to welcoming you to our company as soon as possible.
 
 # Social Media
 
